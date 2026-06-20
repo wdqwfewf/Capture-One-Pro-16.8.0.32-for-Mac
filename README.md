@@ -1,0 +1,1 @@
+# Capture-One-Pro-16.8.0.32-for-Mac
